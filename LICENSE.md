@@ -1,4 +1,4 @@
-# 
+# Figma for macOS vip Extension - vector tools and blend modes offers the most advanced Figma for macOS extension, with vector tools and blend modes. Ideal for professional
 
 
 
